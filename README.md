@@ -1,2 +1,2 @@
-# Learning-
+# Learning
 My Learning Time
